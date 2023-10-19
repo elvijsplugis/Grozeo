@@ -1,5 +1,6 @@
 # Differentiation Strategy For Your Online Retail Store: 5 Tips for a Successful Strategy
 ![Alt text](https://github.com/elvijsplugis/Grozeo/blob/main/Elvijs/Elvijs%20Plugis%20-%20Grozeo.jpg)
+
 *By Elvijs Plugis, Chief Marketing Officer (UK) at Grozeo*<br>
 
 In a world where over five million new businesses emerged in 2022 alone, standing out in the online retail landscape is no longer a choice but a necessity. Patagonia, Fenty Beauty, Google, and Spanx are prime examples of how businesses can evolve and capture market share by implementing a differentiation strategy. In this article, we'll explore the concept of differentiation strategy and provide five essential tips to create a successful strategy for your [online retail store](https://grozeo.com/).
